@@ -1,3 +1,6 @@
+
+![image](https://github.com/AnyaTsy/hw_1/assets/105385972/59a98675-7b93-42cb-9579-ee69b793ab83)
+
 ## Документація 
 ![image](https://github.com/apostxl/Genius-Personal-Assisstant-/assets/116919359/758df949-de08-48d0-928b-60396c6dc63e)
 
